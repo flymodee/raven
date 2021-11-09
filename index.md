@@ -17,3 +17,5 @@ can i please not just go out with you and have you as my girlfriend but to be th
 [**yes**](yes.md)
 
 [**no**](no.md)
+
+![](cuddle.png)
