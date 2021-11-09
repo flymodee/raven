@@ -14,6 +14,6 @@ will you let me have the highest privilege of being there for you?
 can i please not just go out with you and have you as my girlfriend but to be there for you forever and love you with all i have and more eternally?
 
 ## will you do me the greatest honor and be my girlfriend? ##
-[yes](yes.md)
+**[yes](yes.md)
 
-[no](no.md)
+[no](no.md)**
