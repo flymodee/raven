@@ -1,37 +1,16 @@
-## Welcome to GitHub Pages
+## hi milita
 
-You can use the [editor on GitHub](https://github.com/flymodee/raven/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+the only person I've ever looked at is you.
+ive been looking at and thinking of you every single day since the first time i set eyes on you in that english class
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+### no matter what i was doing or where i was 
 
-### Markdown
+you were always a constant in my life aYO always made it infinitely better and worth it just by being there.
+i fell in love with you on first sight but every single time i interacted with you or even saw you smile at a joke i fell in love with you even more.
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+### ive always loved **YOU** and wanted to be by your side ###
 
-```markdown
-Syntax highlighted code block
+will you let me have the highest privilege of being there for you?
+can i please not just go out with you and have you as my girlfriend but to be there for you forever and love you with all i have and more eternally?
 
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/flymodee/raven/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+## will you do me the greatest honor and be my girlfriend? ##
