@@ -1,5 +1,6 @@
 theme: minima
 # remote-theme: P0WEX/Gesko/dark
 title: i love you
+root: /
 baseurl: /raven
 url: http://flymodee.github.io
