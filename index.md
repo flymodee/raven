@@ -19,3 +19,5 @@ can i please not just go out with you and have you as my girlfriend but to be th
 [**no**](no.md)
 
 ![](cuddle.PNG)
+
+[something new my life](poetry.md)
