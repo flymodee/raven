@@ -9,6 +9,6 @@
 - constantly texting you and sending you things
 - talking to you about literally anything and everything
 - getting to know your body exploring every part of it and teasing you
-- 
-- e
-- 
+- helping eachother through life
+- always being so nervous and excited everytime I was going to see you and getting all ready
+- feeling like it was us against the world
