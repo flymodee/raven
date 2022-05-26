@@ -1,4 +1,4 @@
-Times I objectified you and viewed you the same 
+## Times I objectified you and viewed you the same 
 
   - When we were hanging out at tufts and sitting on a bench I kept touching your body sexually, like grabbing your boobs and curves and started off doing that
   - One time specifically when I saw you after redbones you were wearing the pants that had holes and I didn't stop putting my hands down them,
